@@ -1,4 +1,4 @@
-
+plants vs brainrots custom Scripts is the best plants vs brainrots Script, featuring auto-farm and private server access. Safe and powerful for all
 
 
 
